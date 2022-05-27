@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @BiaDantas, 24 anos 
 - Estudante de pedagogia no Instituto Federal de Brasília 
-- Moro em Brasília - DF 
 - Casada 💍
 
 
